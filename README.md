@@ -1,6 +1,5 @@
-<dv align="center">
+<div align="center">
 
 ![](https://komarev.com/ghpvc/?username=Davestridersjuice&style=flat-square&label="+A+pretty+woman+don't+need+a+wallet+"&color=red)
 
-<img width="584" height="427" alt="image" src="https://github.com/user-attachments/assets/3d924258-036e-4ada-9c68-8025344cced7" /> <img width="735" height="1042" alt="image" src="https://github.com/user-attachments/assets/2428edd9-feb7-47c3-a739-dd91161c714e" />
-
+<img width="735" height="1042" alt="image" src="https://github.com/user-attachments/assets/1a99ddee-8bf5-4f77-a0bf-9efb7966dfab" />
