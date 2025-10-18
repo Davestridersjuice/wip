@@ -54,6 +54,8 @@ ${\textsf{\color{#FF0000}and @Ghosty-Trickster Is my alt account [Github]}}$
 
 ${\textsf{\color{#00000}I also really like Dave Strider}}$ 
 
+![davey](https://i.ibb.co/4ZCC2x4F/tumblr-b7ff2ad98fb9c791359eb9bcd629bd22-447f0dfd-250.webp)
+
 ${\textsf{\color{#00000}YES I hate Bro Strider.. Idc if you like him though.}}$
 
 ${\textsf{\color{#00000}By the way, my favorite color is purple not red.}}$
