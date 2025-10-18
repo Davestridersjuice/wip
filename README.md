@@ -37,7 +37,7 @@ ${\textsf{\color{#00000}Madoka Magica, Homestuck, Castle Swimmer , Dream Game, F
  ${\textsf{\color{#00000}Underverse, Vocaloid, BSD, Soul Eater, Black Lagoon, Tokyo Revengers, Shonen jump - Black cat, Panty and Stocking,}}$ 
  ${\textsf{\color{#00000}Wonder Egg Priority, Demon slayer and more}}$
 
-${\textsf{\color{#00000}Sorry if that's hard to read. I'm very open to making friends}}$
+${\textsf{\color{#00000}Sorry if that's hard to read.}}$
 
 ${\textsf{\color{#FF0000}Here are my socials ↓}}$
 
