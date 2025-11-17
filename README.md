@@ -2,7 +2,7 @@
 
 <img align="left" src="https://i.ibb.co/nNHsLkDM/tumblr-8b515352c2364b2fc44012c5d45a96ee-0bbce3ce-2048.gif">
 
-𓏫 ུ   αƶυɾҽ/ƈʅαυɗια ҽƚƈ...   ۪ ۪‿ྀ◜ ͡ ◟  </br>
+<sub>𓏫 ུ   αƶυɾҽ/ƈʅαυɗια ҽƚƈ...   ۪ ۪‿ྀ◜ ͡ ◟  </br>
 ꞌꞋ   𓈒   ̣̣ ۟ ིྀ ͝ 𓏼   text   ་།  /ҽɳʝιɳɠʅαƶҽɾ ㅤ  ꨄ︎
 
 <sub> [Pinterest](https://www.pinterest.com/Davestridersjuice/) 
