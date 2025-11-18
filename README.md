@@ -21,6 +21,7 @@
 𓏫 ུ   ${\textsf{\color{#4957f4}αƶυɾҽ/ƈʅαυɗια ҽƚƈ...}}$   ۪ ۪‿ྀ◜ ͡ ◟  </br>
 ꞌꞋ   𓈒   ̣̣ ۟ ིྀ ͝ 𓏼   text   ་།  /ҽɳʝιɳɠʅαƶҽɾ ㅤ  ${\textsf{\color{#a30000}ꨄ︎}}$
 
+
 <div align="center">
 
 
@@ -29,7 +30,8 @@
 [Spotify](https://open.spotify.com/user/31374auufhmdwvnklou5a3aykoa4?si=fc4de630f88a49cf) 
 [Tumblr](https://www.tumblr.com/davestridersjuice)
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Davestridersjuice&color=2637b8&style=plastic&label=Ghostly) 
-<img alt="followers" title="Follow me on Github" src="https://img.shields.io/github/followers/Davestridersjuice?color=a30000&style=plastic&abbreviated=false&label=Walkers"/>
+${\textsf{\color{#4957f4}ᵂᵃⁿᵗ ᵗᵒ ˢⁱᵍⁿ ᵐʸ}}$ <sub>[Ata](https://chickenbootyweezer.atabook.org/) ? ཻུ۪۪♡.
 
-${\textsf{\color{#4957f4}ᵂᵃⁿᵗ ᵗᵒ ˢⁱᵍⁿ ᵐʸ}}$ [Ata](https://chickenbootyweezer.atabook.org/) ཻུ۪۪♡.
+</div>
+
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=Davestridersjuice&color=a30000&style=plastic&label=Ghostwalkers)
